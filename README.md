@@ -4,4 +4,4 @@ Shrooomiie is my name !
 Aspiring Pyrotechnic Video Jockey🔥 
 Studying for BA Chemical Engineering 🔬 
 Insured Fire Performer🔥 
-Amputee ✌🏻️🚫
+Amputee
